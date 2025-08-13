@@ -31,4 +31,6 @@ If you intend to explore everything this darknet marketplace provides, always pu
 
 
 
-Update:  04.08.2025 link is operational
+
+
+Update:  13 August 2025
