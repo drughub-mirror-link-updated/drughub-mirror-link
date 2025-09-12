@@ -37,4 +37,6 @@ If you intend to explore everything this darknet marketplace provides, always pu
 
 
 
-Update:  23.08.2025 Dead onion links fixed 
+
+
+Update:  12.09.2025
